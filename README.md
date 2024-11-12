@@ -6,7 +6,7 @@
 
 - 🌱 I love **3D Art**
 
-- 💬 Ask me about **Programming, Data Science, and Art collaboration**
+- 💬 Message me about **Programming, Data Science, and Art collaboration**
 
 - ⚡ Favorite Quote: **Whatever you do, work heartily**
 
